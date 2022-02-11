@@ -1,0 +1,2 @@
+# gububkripto
+Menyukai dunia digital
